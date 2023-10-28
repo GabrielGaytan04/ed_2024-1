@@ -36,7 +36,6 @@ Mi música favorita:
 - Irving me obligo a decir que mana XD 
 
 Mis redes sociales:
-- Instagram: No tengo todavia me lo armo en la semana 
+- Instagram: [https://www.instagram.com/vintagehaskman/] 
 - Correo: [gabriel_gaytan_22@ciencias.unam.mx]
-- Celular: 5541314742 
 - Spotify: [https://open.spotify.com/show/6IDKPIKqORQyrGzn52QUQc?si=dbf1a81f930b4c62]
